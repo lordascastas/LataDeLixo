@@ -1,0 +1,2 @@
+# LataDeLixo
+Onde voce defeca.
